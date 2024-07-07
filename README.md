@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tanvirhossain16
-- 👀 I’m interested in Coding
-- 🌱 I’m currently learning UI/UX Design
+- 👀 I’m interested in Coding & Designing
+- 🌱 I’m currently learning Graphic Design
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
